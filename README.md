@@ -1,2 +1,0 @@
-# NUSKA-AI
-About US
